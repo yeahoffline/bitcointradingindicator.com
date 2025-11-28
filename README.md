@@ -1,0 +1,1 @@
+# bitcointradingindicator.com
